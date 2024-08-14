@@ -1,4 +1,5 @@
 Ola, seja bem vindo ao meu canal!
 
-![](![image](https://github.com/user-attachments/assets/fa5f3175-0bc2-42b4-958d-6d449b76fe04)
+![](![image](https://github.com/user-attachments/assets/4740c06f-18a6-4713-9966-86f12fe764b8)
+)
 
